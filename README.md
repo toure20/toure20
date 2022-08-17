@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 🌏
 
 - :iphone: iOS Engineer, UX/UI fan
 - 👨🏻‍💻 I’m currently working and working 😁
